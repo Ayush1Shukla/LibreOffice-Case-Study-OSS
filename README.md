@@ -1,0 +1,1 @@
+# LibreOffice-Case-Study-OSS
